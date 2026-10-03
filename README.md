@@ -1,0 +1,2 @@
+# premium-gild-frame-001-frame-restoration-assessment-t
+You're staring at a gilded frame with questionable varnish, unstable leaf, and mysterious stains—but you have no standardized way to document condition, prioritize repairs, or justify your restoration costs to clients. The Frame Restoration Assessment Template fixes that with a purpose-built Notion system designed specifically for heritage frame pr
